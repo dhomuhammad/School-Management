@@ -4,7 +4,7 @@ Muhammad Hasbiallah -  312210618
 
 Ridha Muhammad Rifqi - 312210491
 
-Alfaza putra adjie ariefiansyah - 312210512
+Alfaza Putra Adjie Ariefiansyah - 312210512
 
 Robby Firmansyah - 312210643
 
